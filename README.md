@@ -1,0 +1,1 @@
+# ADC-Hub-Privacy-Policy
